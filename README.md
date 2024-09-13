@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **jonynfores@gmail.com**
 
-- ⚡ Fun fact **I love football and RnB music**
+- ⚡ Fun fact: **I love football and RnB music**
 
 ### Connect with me:
 
