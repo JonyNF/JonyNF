@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **Python & GO**
 
-- 🥅 2024 Goals: Learn GO and get employed
+- 🥅 2024 Goals: Learn GO
 
 - 📫 How to reach me **jonynfores@gmail.com**
 
